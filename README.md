@@ -1,1 +1,1 @@
-Sharing and exchanging ideas
+Sharing and exchanging ideas.
